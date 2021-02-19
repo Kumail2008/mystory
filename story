@@ -1,1 +1,2 @@
 Harry potter is a wizard. His parents died to and evil sorcerer when he was young. On his eleventh birthday he found out he was a real wizard for the first time and after that he started attending hogwarts the magical school.
+Hello
